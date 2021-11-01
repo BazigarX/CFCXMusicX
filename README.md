@@ -13,8 +13,8 @@
  
 ### sᴘᴇᴄɪᴀʟ ғᴇᴀᴛᴜʀᴇs 💖
 
+-[NOINOIMUSIC](https://t.me/NOINOIMUSICBOT) MusicBot
 - [BAZIGAR](https://t.me/bazigaryt): Owner
-- [NOINOIMUSIC](https://t.me/NOINOIMUSICBOT) Owr Music Bot
 - [HEYAMAN](https://t.me/heyaaman) Devloper
 - [KIRA](https://t.me/Kiradeath_god) Devloper
 
