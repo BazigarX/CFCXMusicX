@@ -1,5 +1,5 @@
 # 𝐂𝐅𝐂 𝐌𝐔𝐒𝐈𝐂 ( 𝐍𝐎𝐈𝐍𝐎𝐈 ) 
-<p align="center"><a href="https://t.me/eSport_BOTs"><img src="https://telegra.ph/file/a0047b8918a47dda7f66a.jpg"></a></p>
+<p align="center"><a href="https://t.me/NOINOIMUSICBOT"><img src="https://telegra.ph/file/a0047b8918a47dda7f66a.jpg"></a></p>
 
 
 ### 🧪 ɢᴇᴛ sᴇssɪᴏɴ ɴᴀᴍᴇ ғʀᴏᴍ ʜᴇᴀʀ:
